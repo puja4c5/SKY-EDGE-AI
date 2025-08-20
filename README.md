@@ -1,1 +1,0 @@
-# SKY-EDGE-AI
